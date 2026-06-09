@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with top Script for steal the brainrot base, the #1 Script. Includes instant win and no cooldown
 
 
 
